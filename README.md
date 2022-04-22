@@ -1,6 +1,6 @@
+![@xxxgabexxx (1)](https://user-images.githubusercontent.com/103377845/164792768-d2ef0a33-ac2c-4eb1-a32c-93395c5beb37.png)
 
 
-![@xxxgabexxx](https://user-images.githubusercontent.com/103377845/164792014-c458346a-e03a-4836-892b-b1599f2a18d5.png)
 
 
 # Hello Stranger
