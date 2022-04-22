@@ -1,5 +1,6 @@
 
-![Roxo Nuvens Garota Gamer Banner para Twitch](https://user-images.githubusercontent.com/103377845/162635643-7bf7695c-94d6-4c40-909f-5f48ee211855.png)
+
+![@xxxgabexxx](https://user-images.githubusercontent.com/103377845/164792014-c458346a-e03a-4836-892b-b1599f2a18d5.png)
 
 
 # Hello Stranger
