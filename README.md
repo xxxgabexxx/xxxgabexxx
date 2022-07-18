@@ -9,7 +9,7 @@
 - :brazil: 
 - 👋 Hi, I’m **@xxxgabexxx** :rainbow_flag: 
 - 👀 I’m interested in **back-end** 
-- :computer: I’m currently learning **Java**
+- :computer: I’m currently learning **Ruby**
 
 <!---
 xxxgabexxx/xxxgabexxx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
