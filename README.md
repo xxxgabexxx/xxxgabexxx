@@ -1,6 +1,3 @@
-![Bem Vindo!](https://user-images.githubusercontent.com/103377845/226863102-1c38bb2e-0d67-4fd4-8d2f-2042f4c85eee.png)
-
-
 
 
 # Hello Stranger
